@@ -13,7 +13,7 @@ In case you do not own a Meta Quest device yet and happen to live in Germany, he
 Claiming this will give us both 30€ store credit.
 
 # Links
-A | B | C | D | E | F | G | H | I | J | K | L | M | N | O | P | Q | R | S | T | U | V | W | X | Y | Z | 0-9
+A | B | C | D | E | F | G | H | I | J | K | L | M | N | O | P | Q | R | [S](#s) | [T](#t) | U | V | W | X | Y | Z | 0-9
 ## S
 * [Sairento VR: Untethered](https://www.oculus.com/appreferrals/Naitakal/2299215130112875/)
 ## T
