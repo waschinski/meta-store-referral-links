@@ -13,8 +13,17 @@ In case you do not own a Meta Quest device yet and happen to live in Germany, he
 Claiming this will give us both 30€ store credit.
 
 # Links
-A | B | C | D | E | F | G | H | I | J | K | L | M | N | O | P | Q | R | [S](#s) | [T](#t) | U | V | W | X | Y | Z | 0-9
+[A](#a) | B | C | D | E | F | G | H | I | J | K | L | M | N | O | P | Q | R | [S](#s) | [T](#t) | U | V | W | X | Y | Z | 0-9 | [Bundles](#bundles)
+## A
+* [Arashi: Castles of Sin - Final Cut](https://www.oculus.com/appreferrals/Naitakal/6574695042540825/)
+* [Arizona Sunshine®](https://www.oculus.com/appreferrals/Naitakal/2190353671014400/)
+* [Arizona Sunshine® 2](https://www.oculus.com/appreferrals/Naitakal/5245041552210029/)
+* [Arizona Sunshine® 2 – Deluxe Edition](https://www.oculus.com/appreferrals/Naitakal/1853814408372912/)
 ## S
 * [Sairento VR: Untethered](https://www.oculus.com/appreferrals/Naitakal/2299215130112875/)
 ## T
 * [Table of Tales: The Crooked Crown](https://www.oculus.com/appreferrals/Naitakal/4714471148644140/)
+## Bundles
+* [Freddy’s Bundle](https://www.oculus.com/appreferrals/Naitakal/731454558853750/)
+  * Arizona Sunshine®
+  * Arizona Sunshine® 2
