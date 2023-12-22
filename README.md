@@ -13,7 +13,10 @@ In case you do not own a Meta Quest device yet and happen to live in Germany, he
 Claiming this will give us both 30€ store credit.
 
 # Links
-A | B | C | D | E | F | G | H | I | J | K | L | M | N | O | P | Q | R | [S](#s) | [T](#t) | U | V | W | X | Y | Z | 0-9 | Bundles
+[A](#a) | B | C | D | E | F | G | H | I | J | K | L | M | N | O | P | Q | R | [S](#s) | [T](#t) | U | V | W | X | Y | Z | 0-9 | Bundles
+## A
+* [Asgard‘s Wrath (Rift)](https://www.oculus.com/appreferrals/Naitakal/1180401875303371/)
+* [Asgard‘s Wrath 2](https://www.oculus.com/appreferrals/Naitakal/2603836099654226/)
 ## S
 * [Sairento VR: Untethered](https://www.oculus.com/appreferrals/Naitakal/2299215130112875/)
 ## T
