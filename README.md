@@ -21,5 +21,6 @@ Claiming this will give us both 30€ store credit.
 * [LES MILLS BODYCOMBAT](https://www.oculus.com/appreferrals/Naitakal/4015163475201433/)
 ## S
 * [Sairento VR: Untethered](https://www.oculus.com/appreferrals/Naitakal/2299215130112875/)
+* [Smash Drums](https://www.oculus.com/appreferrals/Naitakal/3630025217090808/)
 ## T
 * [Table of Tales: The Crooked Crown](https://www.oculus.com/appreferrals/Naitakal/4714471148644140/)
