@@ -20,6 +20,7 @@ Claiming this will give us both 30€ store credit when you set up your new Meta
 ## B
 * [BRINK Traveler](https://www.oculus.com/appreferrals/Naitakal/3635172946605196/)
 ## I
+* [Ilysia](https://www.oculus.com/appreferrals/Naitakal/6486916504696133/)
 * [In Death: Unchained](https://www.oculus.com/appreferrals/Naitakal/2334376869949242/)
 ## L
 * [LES MILLS BODYCOMBAT](https://www.oculus.com/appreferrals/Naitakal/4015163475201433/)
@@ -28,5 +29,6 @@ Claiming this will give us both 30€ store credit when you set up your new Meta
 * [Smash Drums](https://www.oculus.com/appreferrals/Naitakal/3630025217090808/)
 ## T
 * [Table of Tales: The Crooked Crown](https://www.oculus.com/appreferrals/Naitakal/4714471148644140/)
+* [The Light Brigade](https://www.oculus.com/appreferrals/Naitakal/2681027292004911/)
 ## W
 * [Walkabout Mini Golf](https://www.oculus.com/appreferrals/Naitakal/2462678267173943/)
