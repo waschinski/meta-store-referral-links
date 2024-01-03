@@ -18,6 +18,7 @@ Claiming this will give us both 30€ store credit when you set up your new Meta
 * [Asgard‘s Wrath (Rift)](https://www.oculus.com/appreferrals/Naitakal/1180401875303371/)
 * [Asgard‘s Wrath 2](https://www.oculus.com/appreferrals/Naitakal/2603836099654226/)
 ## B
+* [Barbaria](https://www.oculus.com/appreferrals/Naitakal/5296016923775393/)
 * [BRINK Traveler](https://www.oculus.com/appreferrals/Naitakal/3635172946605196/)
 ## I
 * [Ilysia](https://www.oculus.com/appreferrals/Naitakal/6486916504696133/)
