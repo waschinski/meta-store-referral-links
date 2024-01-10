@@ -21,7 +21,6 @@ Claiming this will give us both 30€ store credit when you set up your new Meta
 * [Barbaria](https://www.oculus.com/appreferrals/Naitakal/5296016923775393/)
 * [BRINK Traveler](https://www.oculus.com/appreferrals/Naitakal/3635172946605196/)
 ## I
-* [Ilysia](https://www.oculus.com/appreferrals/Naitakal/6486916504696133/)
 * [In Death: Unchained](https://www.oculus.com/appreferrals/Naitakal/2334376869949242/)
 ## L
 * [LES MILLS BODYCOMBAT](https://www.oculus.com/appreferrals/Naitakal/4015163475201433/)
