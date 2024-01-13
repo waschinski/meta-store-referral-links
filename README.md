@@ -7,6 +7,8 @@ There are two restrictions on that though:
 
 All you have to do is click on one of the links which will open a recommendation in either the app or the browser for you to claim. If you then end up buying the game or app within 7 days, you will get a 25% discount and I will get 5€ store credit.
 
+All these links (and maybe some more) can also be found on https://metaref.link.
+
 ## Device Referral (30€ Store Credit)
 In case you do not own a Meta Quest device yet and happen to live in Germany, here is a device referral link which you need to claim before signing in on your new Meta Quest device for the first time: https://www.meta.com/referrals/link/Naitakal
 
