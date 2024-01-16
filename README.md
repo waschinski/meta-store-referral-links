@@ -15,13 +15,15 @@ In case you do not own a Meta Quest device yet and happen to live in Germany, he
 Claiming this will give us both 30€ store credit when you set up your new Meta Quest device.
 
 ## App Referrals (25% Discount)
-### [A](#a) | [B](#b) | C | D | E | [F](#f) | G | H | [I](#i) | J | K | [L](#l) | M | N | O | P | Q | R | [S](#s) | [T](#t) | U | V | [W](#w) | X | Y | Z | 0-9
+### [A](#a) | [B](#b) | C | [D](#d) | E | [F](#f) | G | H | [I](#i) | J | K | [L](#l) | M | N | O | P | Q | R | [S](#s) | [T](#t) | U | V | [W](#w) | X | Y | Z | 0-9
 ## A
 * [Asgard‘s Wrath (Rift)](https://www.oculus.com/appreferrals/Naitakal/1180401875303371/)
 * [Asgard‘s Wrath 2](https://www.oculus.com/appreferrals/Naitakal/2603836099654226/)
 ## B
 * [Barbaria](https://www.oculus.com/appreferrals/Naitakal/5296016923775393/)
 * [BRINK Traveler](https://www.oculus.com/appreferrals/Naitakal/3635172946605196/)
+## D
+* [Death Lap](https://www.oculus.com/appreferrals/Naitakal/1954488057986071/)
 ## F
 * [First Person Tennis - The Real Tennis Simulator](https://www.oculus.com/appreferrals/Naitakal/6119989094742166/)
 ## I
