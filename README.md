@@ -15,7 +15,7 @@ In case you do not own a Meta Quest device yet and happen to live in Germany, he
 Claiming this will give us both 30€ store credit when you set up your new Meta Quest device.
 
 ## App Referrals (25% Discount)
-### [A](#a) | [B](#b) | C | [D](#d) | E | [F](#f) | [G](#g) | H | [I](#i) | J | K | [L](#l) | M | N | O | P | Q | R | [S](#s) | [T](#t) | U | V | [W](#w) | X | Y | Z | 0-9
+### [A](#a) | [B](#b) | C | [D](#d) | E | [F](#f) | [G](#g) | H | [I](#i) | J | K | [L](#l) | M | N | O | P | Q | R | [S](#s) | [T](#t) | [U](#u) | V | [W](#w) | X | Y | Z | 0-9
 ## A
 * [Asgard‘s Wrath (Rift)](https://www.oculus.com/appreferrals/Naitakal/1180401875303371/)
 * [Asgard‘s Wrath 2](https://www.oculus.com/appreferrals/Naitakal/2603836099654226/)
@@ -40,5 +40,7 @@ Claiming this will give us both 30€ store credit when you set up your new Meta
 ## T
 * [Table of Tales: The Crooked Crown](https://www.oculus.com/appreferrals/Naitakal/4714471148644140/)
 * [The Light Brigade](https://www.oculus.com/appreferrals/Naitakal/2681027292004911/)
+## U
+* [Unplugged: Air Guitar](https://www.oculus.com/appreferrals/Naitakal/4714094898617280/)
 ## W
 * [Walkabout Mini Golf](https://www.oculus.com/appreferrals/Naitakal/2462678267173943/)
