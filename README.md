@@ -3,7 +3,7 @@ This is a list of referral links for the Meta Quest store granting you a 25% dis
 
 There are two restrictions on that though:
 * The game or app must have a price of at least 10€.
-* Already discounted games or apps won't get an additional discount.
+* Already discounted games or apps usually won't get an additional discount but sometimes it will work, so always give it a try.
 
 All you have to do is click on one of the links which will open a recommendation in either the app or the browser for you to claim. If you then end up buying the game or app within 7 days, you will get a 25% discount and I will get 5€ store credit.
 
