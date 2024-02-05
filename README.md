@@ -41,6 +41,7 @@ Claiming this will give us both 30€ store credit when you set up your new Meta
 ## S
 * [Sairento VR: Untethered](https://www.oculus.com/appreferrals/Naitakal/2299215130112875/)
 * [Smash Drums](https://www.oculus.com/appreferrals/Naitakal/3630025217090808/)
+* [Sweet Surrender](https://www.oculus.com/appreferrals/Naitakal/4723352327707414/)
 ## T
 * [Table of Tales: The Crooked Crown](https://www.oculus.com/appreferrals/Naitakal/4714471148644140/)
 * [The Light Brigade](https://www.oculus.com/appreferrals/Naitakal/2681027292004911/)
