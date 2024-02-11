@@ -24,6 +24,7 @@ Claiming this will give us both 30€ store credit when you set up your new Meta
 * [BRINK Traveler](https://www.oculus.com/appreferrals/Naitakal/3635172946605196/)
 ## D
 * [Death Lap](https://www.oculus.com/appreferrals/Naitakal/1954488057986071/)
+* [Drop Dead: The Cabin](https://www.oculus.com/appreferrals/Naitakal/4691479430874595/)
 ## F
 * [First Person Tennis - The Real Tennis Simulator](https://www.oculus.com/appreferrals/Naitakal/6119989094742166/)
 ## G
