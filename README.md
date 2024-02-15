@@ -25,6 +25,7 @@ Claiming this will give us both 30€ store credit when you set up your new Meta
 ## D
 * [Death Lap](https://www.oculus.com/appreferrals/Naitakal/1954488057986071/)
 * [Drop Dead: The Cabin](https://www.oculus.com/appreferrals/Naitakal/4691479430874595/)
+* [Dungeons of Eternity](https://www.oculus.com/appreferrals/Naitakal/6341779295861881/)
 ## F
 * [First Person Tennis - The Real Tennis Simulator](https://www.oculus.com/appreferrals/Naitakal/6119989094742166/)
 ## G
