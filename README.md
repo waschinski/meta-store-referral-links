@@ -24,6 +24,7 @@ Claiming this will give us both 30€ store credit when you set up your new Meta
 * [BRINK Traveler](https://www.oculus.com/appreferrals/Naitakal/3635172946605196/)
 ## D
 * [Death Lap](https://www.oculus.com/appreferrals/Naitakal/1954488057986071/)
+* [Demeo](https://www.oculus.com/appreferrals/Naitakal/3634830803298285/)
 * [Drop Dead: The Cabin](https://www.oculus.com/appreferrals/Naitakal/4691479430874595/)
 * [Dungeons of Eternity](https://www.oculus.com/appreferrals/Naitakal/6341779295861881/)
 ## F
