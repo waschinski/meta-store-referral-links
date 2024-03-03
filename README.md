@@ -53,6 +53,7 @@ Claiming this will give us both 30€ store credit when you set up your new Meta
 ## T
 * [Table of Tales: The Crooked Crown](https://www.oculus.com/appreferrals/Naitakal/4714471148644140/)
 * [The Light Brigade](https://www.oculus.com/appreferrals/Naitakal/2681027292004911/)
+* [The Walking Dead: Saints & Sinners](https://www.oculus.com/appreferrals/Naitakal/2897337400373711/)
 ## U
 * [UNDERDOGS](https://www.oculus.com/appreferrals/Naitakal/5302178529865980/)
 * [Unplugged: Air Guitar](https://www.oculus.com/appreferrals/Naitakal/4714094898617280/)
