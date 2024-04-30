@@ -65,5 +65,6 @@ Claiming this will give us both 30€ store credit when you set up your new Meta
 * [Until You Fall](https://www.oculus.com/appreferrals/Naitakal/2567459230020142/)
 ## V
 * [Vampire: The Masquerade - Justice](https://www.oculus.com/appreferrals/Naitakal/6179032068838054/)
+* [VR Skater: SL](https://www.oculus.com/appreferrals/Naitakal/7167852766594738/)
 ## W
 * [Walkabout Mini Golf](https://www.oculus.com/appreferrals/Naitakal/2462678267173943/)
