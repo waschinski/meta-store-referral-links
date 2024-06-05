@@ -15,13 +15,14 @@ In case you do not own a Meta Quest device yet and happen to live in Germany, he
 Claiming this will give us both 30€ store credit when you set up your new Meta Quest device.
 
 ## App Referrals (25% Discount)
-### [A](#a) | [B](#b) | C | [D](#d) | [E](#e) | [F](#f) | [G](#g) | H | [I](#i) | J | K | [L](#l) | M | N | O | [P](#p) | [Q](#q) | [R](#r) | [S](#s) | [T](#t) | [U](#u) | [V](#v) | [W](#w) | X | Y | Z | 0-9
+### [A](#a) | [B](#b) | C | [D](#d) | [E](#e) | [F](#f) | [G](#g) | H | [I](#i) | J | K | [L](#l) | [M](#m) | N | O | [P](#p) | [Q](#q) | [R](#r) | [S](#s) | [T](#t) | [U](#u) | [V](#v) | [W](#w) | X | Y | Z | 0-9
 ## A
 * [After the Fall](https://www.oculus.com/appreferrals/Naitakal/2160364850746031/)
 * [Asgard‘s Wrath (Rift)](https://www.oculus.com/appreferrals/Naitakal/1180401875303371/)
 * [Asgard‘s Wrath 2](https://www.oculus.com/appreferrals/Naitakal/2603836099654226/)
 ## B
 * [Barbaria](https://www.oculus.com/appreferrals/Naitakal/5296016923775393/)
+* [BoomBox](https://www.oculus.com/appreferrals/Naitakal/3983480868361577/)
 * [BRINK Traveler](https://www.oculus.com/appreferrals/Naitakal/3635172946605196/)
 ## D
 * [Darksword: Battle Eternity](https://www.oculus.com/appreferrals/Naitakal/5912124212170208/)
@@ -44,7 +45,10 @@ Claiming this will give us both 30€ store credit when you set up your new Meta
 * [Little Cities](https://www.oculus.com/appreferrals/Naitakal/4988470131168299/)
 * [Lone Echo (Rift)](https://www.oculus.com/appreferrals/Naitakal/1368187813209608/)
 * [Lone Echo II (Rift)](https://www.oculus.com/appreferrals/Naitakal/1711938725528735/)
+## M
+* [MASTERS OF LIGHT](https://www.oculus.com/appreferrals/Naitakal/6784615031600264/)
 ## P
+* [Per Aspera VR](https://www.oculus.com/appreferrals/Naitakal/7365196930219982/)
 * [Pistol Whip](https://www.oculus.com/appreferrals/Naitakal/2104963472963790/)
 ## Q
 * [Quest Together](https://www.oculus.com/appreferrals/Naitakal/5394905193858074/)
@@ -52,6 +56,7 @@ Claiming this will give us both 30€ store credit when you set up your new Meta
 * [Ragnarock](https://www.oculus.com/appreferrals/Naitakal/3749621795127676/)
 ## S
 * [Sairento VR: Untethered](https://www.oculus.com/appreferrals/Naitakal/2299215130112875/)
+* [Shadowgate VR: The Mines of Mythrok](https://www.oculus.com/appreferrals/Naitakal/3878215958952165/)
 * [Smash Drums](https://www.oculus.com/appreferrals/Naitakal/3630025217090808/)
 * [Sweet Surrender](https://www.oculus.com/appreferrals/Naitakal/4723352327707414/)
 * [Synth Riders](https://www.oculus.com/appreferrals/Naitakal/2436558143118760/)
