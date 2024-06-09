@@ -35,6 +35,7 @@ Claiming this will give us both 30€ store credit when you set up your new Meta
 * [EVERSLAUGHT Invasion](https://www.oculus.com/appreferrals/Naitakal/5219488324783789/)
 ## F
 * [First Person Tennis - The Real Tennis Simulator](https://www.oculus.com/appreferrals/Naitakal/6119989094742166/)
+* [Flight 74](https://www.oculus.com/appreferrals/Naitakal/4939588089476517/)
 ## G
 * [GAZZLERS](https://www.oculus.com/appreferrals/Naitakal/4912697945406928/)
 * [Grimlord](https://www.oculus.com/appreferrals/Naitakal/6784503354964529/)
@@ -47,6 +48,7 @@ Claiming this will give us both 30€ store credit when you set up your new Meta
 * [Lone Echo II (Rift)](https://www.oculus.com/appreferrals/Naitakal/1711938725528735/)
 ## M
 * [MASTERS OF LIGHT](https://www.oculus.com/appreferrals/Naitakal/6784615031600264/)
+* [Max Mustard](https://www.oculus.com/appreferrals/Naitakal/5269080709783454/)
 ## P
 * [Per Aspera VR](https://www.oculus.com/appreferrals/Naitakal/7365196930219982/)
 * [Pistol Whip](https://www.oculus.com/appreferrals/Naitakal/2104963472963790/)
