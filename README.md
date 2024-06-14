@@ -32,6 +32,7 @@ Claiming this will give us both 30€ store credit when you set up your new Meta
 * [Drums Rock](https://www.oculus.com/appreferrals/Naitakal/6378164228868127/)
 * [Dungeons of Eternity](https://www.oculus.com/appreferrals/Naitakal/6341779295861881/)
 ## E
+* [Encircled](https://www.oculus.com/appreferrals/Naitakal/7172808649485710/)
 * [EVERSLAUGHT Invasion](https://www.oculus.com/appreferrals/Naitakal/5219488324783789/)
 ## F
 * [First Person Tennis - The Real Tennis Simulator](https://www.oculus.com/appreferrals/Naitakal/6119989094742166/)
