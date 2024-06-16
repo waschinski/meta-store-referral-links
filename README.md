@@ -15,7 +15,7 @@ In case you do not own a Meta Quest device yet and happen to live in Germany, he
 Claiming this will give us both 30€ store credit when you set up your new Meta Quest device.
 
 ## App Referrals (25% Discount)
-### [A](#a) | [B](#b) | C | [D](#d) | [E](#e) | [F](#f) | [G](#g) | H | [I](#i) | J | K | [L](#l) | [M](#m) | N | O | [P](#p) | [Q](#q) | [R](#r) | [S](#s) | [T](#t) | [U](#u) | [V](#v) | [W](#w) | X | Y | Z | 0-9
+### [A](#a) | [B](#b) | C | [D](#d) | [E](#e) | [F](#f) | [G](#g) | H | [I](#i) | J | K | [L](#l) | [M](#m) | N | O | [P](#p) | [Q](#q) | [R](#r) | [S](#s) | [T](#t) | [U](#u) | [V](#v) | [W](#w) | X | Y | [Z](#z) | 0-9
 ## A
 * [After the Fall](https://www.oculus.com/appreferrals/Naitakal/2160364850746031/)
 * [Asgard‘s Wrath (Rift)](https://www.oculus.com/appreferrals/Naitakal/1180401875303371/)
@@ -61,6 +61,7 @@ Claiming this will give us both 30€ store credit when you set up your new Meta
 * [Sairento VR: Untethered](https://www.oculus.com/appreferrals/Naitakal/2299215130112875/)
 * [Shadowgate VR: The Mines of Mythrok](https://www.oculus.com/appreferrals/Naitakal/3878215958952165/)
 * [Smash Drums](https://www.oculus.com/appreferrals/Naitakal/3630025217090808/)
+* [Sushi Ben](https://www.oculus.com/appreferrals/Naitakal/5459391390744272/)
 * [Sweet Surrender](https://www.oculus.com/appreferrals/Naitakal/4723352327707414/)
 * [Synth Riders](https://www.oculus.com/appreferrals/Naitakal/2436558143118760/)
 ## T
@@ -78,3 +79,5 @@ Claiming this will give us both 30€ store credit when you set up your new Meta
 ## W
 * [Walkabout Mini Golf](https://www.oculus.com/appreferrals/Naitakal/2462678267173943/)
 * [Warhammer 40,000: Battle Sister](https://www.oculus.com/appreferrals/Naitakal/3231001163584154/)
+## Z
+* [Zombieland: Headshot Fever](https://www.oculus.com/appreferrals/Naitakal/2792447070854325/)
