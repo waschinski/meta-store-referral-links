@@ -15,7 +15,7 @@ In case you do not own a Meta Quest device yet and happen to live in Germany, he
 Claiming this will give us both 30€ store credit when you set up your new Meta Quest device.
 
 ## App Referrals (25% Discount)
-### [A](#a) | [B](#b) | C | [D](#d) | [E](#e) | [F](#f) | [G](#g) | H | [I](#i) | J | K | [L](#l) | [M](#m) | N | O | [P](#p) | [Q](#q) | [R](#r) | [S](#s) | [T](#t) | [U](#u) | [V](#v) | [W](#w) | X | Y | [Z](#z) | 0-9
+### [A](#a) | [B](#b) | [C](#c) | [D](#d) | [E](#e) | [F](#f) | [G](#g) | H | [I](#i) | J | K | [L](#l) | [M](#m) | N | O | [P](#p) | [Q](#q) | [R](#r) | [S](#s) | [T](#t) | [U](#u) | [V](#v) | [W](#w) | X | Y | [Z](#z) | 0-9
 ## A
 * [After the Fall](https://www.oculus.com/appreferrals/Naitakal/2160364850746031/)
 * [Asgard‘s Wrath (Rift)](https://www.oculus.com/appreferrals/Naitakal/1180401875303371/)
@@ -24,6 +24,8 @@ Claiming this will give us both 30€ store credit when you set up your new Meta
 * [Barbaria](https://www.oculus.com/appreferrals/Naitakal/5296016923775393/)
 * [BoomBox](https://www.oculus.com/appreferrals/Naitakal/3983480868361577/)
 * [BRINK Traveler](https://www.oculus.com/appreferrals/Naitakal/3635172946605196/)
+## C
+* [Crazy Kung Fu](https://www.oculus.com/appreferrals/Naitakal/3846153838783795/)
 ## D
 * [Darksword: Battle Eternity](https://www.oculus.com/appreferrals/Naitakal/5912124212170208/)
 * [Death Horizon: Reloaded](https://www.oculus.com/appreferrals/Naitakal/2115015981923610/)
