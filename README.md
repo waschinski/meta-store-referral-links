@@ -62,6 +62,7 @@ Claiming this will give us both 30€ store credit when you set up your new Meta
 * [Quest Together](https://www.oculus.com/appreferrals/Naitakal/5394905193858074/)
 ## R
 * [Ragnarock](https://www.oculus.com/appreferrals/Naitakal/3749621795127676/)
+* [RUINSMAGUS](https://www.oculus.com/appreferrals/Naitakal/6669173709823400/)
 ## S
 * [Sairento VR: Untethered](https://www.oculus.com/appreferrals/Naitakal/2299215130112875/)
 * [Shadowgate VR: The Mines of Mythrok](https://www.oculus.com/appreferrals/Naitakal/3878215958952165/)
