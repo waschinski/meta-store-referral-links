@@ -32,6 +32,7 @@ Claiming this will give us both 30€ store credit when you set up your new Meta
 * [Death Horizon: Reloaded](https://www.meta.com/appreferrals/Naitakal/2115015981923610/)
 * [Death Lap](https://www.meta.com/appreferrals/Naitakal/1954488057986071/)
 * [Demeo](https://www.meta.com/appreferrals/Naitakal/3634830803298285/)
+* [Demoe Battles](https://www.meta.com/appreferrals/Naitakal/4189524851131699/)
 * [Dragon Fist: VR Kung Fu](https://www.meta.com/appreferrals/Naitakal/5075285115918784/)
 * [Drop Dead: The Cabin](https://www.meta.com/appreferrals/Naitakal/4691479430874595/)
 * [Drums Rock](https://www.meta.com/appreferrals/Naitakal/6378164228868127/)
