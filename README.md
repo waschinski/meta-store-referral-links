@@ -14,7 +14,7 @@ In case you do not own a Meta Quest device yet and happen to live in Germany, he
 
 Claiming this will give us both 30€ store credit when you set up your new Meta Quest device.
 
-## App Referrals (25% Discount)
+## App Referrals (15% Discount)
 ### [A](#a) | [B](#b) | [C](#c) | [D](#d) | [E](#e) | [F](#f) | [G](#g) | H | [I](#i) | J | K | [L](#l) | [M](#m) | N | O | [P](#p) | [Q](#q) | [R](#r) | [S](#s) | [T](#t) | [U](#u) | [V](#v) | [W](#w) | X | Y | [Z](#z) | 0-9
 ## A
 * [After the Fall](https://www.meta.com/appreferrals/Naitakal/2160364850746031/)
