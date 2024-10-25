@@ -21,6 +21,7 @@ Claiming this will give us both 30€ store credit when you set up your new Meta
 * [Arcaxer](https://www.meta.com/appreferrals/Naitakal/5396412860376470/)
 * [Asgard‘s Wrath (Rift)](https://www.meta.com/appreferrals/Naitakal/1180401875303371/)
 * [Asgard‘s Wrath 2](https://www.meta.com/appreferrals/Naitakal/2603836099654226/)
+* [AVICII Invector: Encore Edition](https://www.meta.com/appreferrals/Naitakal/4048766301899067/)
 ## B
 * [Barbaria](https://www.meta.com/appreferrals/Naitakal/5296016923775393/)
 * [BoomBox](https://www.meta.com/appreferrals/Naitakal/3983480868361577/)
@@ -31,6 +32,7 @@ Claiming this will give us both 30€ store credit when you set up your new Meta
 * [Darksword: Battle Eternity](https://www.meta.com/appreferrals/Naitakal/5912124212170208/)
 * [Death Horizon: Reloaded](https://www.meta.com/appreferrals/Naitakal/2115015981923610/)
 * [Death Lap](https://www.meta.com/appreferrals/Naitakal/1954488057986071/)
+* [Deisim](https://www.meta.com/appreferrals/Naitakal/3526702020710931/)
 * [Demeo](https://www.meta.com/appreferrals/Naitakal/3634830803298285/)
 * [Demeo Battles](https://www.meta.com/appreferrals/Naitakal/4189524851131699/)
 * [Dragon Fist: VR Kung Fu](https://www.meta.com/appreferrals/Naitakal/5075285115918784/)
