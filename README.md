@@ -1,7 +1,8 @@
 # Meta Store Referral Links
 This is a list of referral links for the Meta Quest store granting you a 15% discount when purchasing games and apps. Each link is only valid for a specific game or app.
 
-There are two restrictions on that though:
+There are three restrictions on that though:
+* We need to be friends/following each other on Meta.
 * The game or app must have a price of at least 10€.
 * Already discounted games or apps usually won't get an additional discount but sometimes it will work, so always give it a try.
 
