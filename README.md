@@ -59,6 +59,7 @@ Claiming this will give us both 30€ store credit when you set up your new Meta
 ## M
 * [MASTERS OF LIGHT](https://www.meta.com/appreferrals/Naitakal/6784615031600264/)
 * [Max Mustard](https://www.meta.com/appreferrals/Naitakal/5269080709783454/)
+* [Mixture](https://www.meta.com/appreferrals/Naitakal/4691626700899382/)
 ## P
 * [Per Aspera VR](https://www.meta.com/appreferrals/Naitakal/7365196930219982/)
 * [Pistol Whip](https://www.meta.com/appreferrals/Naitakal/2104963472963790/)
@@ -81,6 +82,7 @@ Claiming this will give us both 30€ store credit when you set up your new Meta
 * [The Walking Dead: Saints & Sinners](https://www.meta.com/appreferrals/Naitakal/2897337400373711/)
 * [The Walking Dead: Saints & Sinners - Chapter 2: Retribution](https://www.meta.com/appreferrals/Naitakal/5190288877703616/)
 * [THRASHER](https://www.meta.com/appreferrals/Naitakal/7693714067376780/)
+* [Towers and Powers](https://www.meta.com/appreferrals/Naitakal/3535742746525560/)
 ## U
 * [UNDERDOGS](https://www.meta.com/appreferrals/Naitakal/5302178529865980/)
 * [Unplugged: Air Guitar](https://www.meta.com/appreferrals/Naitakal/4714094898617280/)
@@ -92,5 +94,6 @@ Claiming this will give us both 30€ store credit when you set up your new Meta
 ## W
 * [Walkabout Mini Golf](https://www.meta.com/appreferrals/Naitakal/2462678267173943/)
 * [Warhammer 40,000: Battle Sister](https://www.meta.com/appreferrals/Naitakal/3231001163584154/)
+* [Warhammer Age of Sigmar: Tempestfall](https://www.meta.com/appreferrals/Naitakal/4220006248051477/)
 ## Z
 * [Zombieland: Headshot Fever](https://www.meta.com/appreferrals/Naitakal/2792447070854325/)
