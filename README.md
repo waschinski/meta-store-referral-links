@@ -48,6 +48,7 @@ Claiming this will give us both 30€ store credit when you set up your new Meta
 * [First Person Tennis - The Real Tennis Simulator](https://www.meta.com/appreferrals/Naitakal/6119989094742166/)
 * [Flight 74](https://www.meta.com/appreferrals/Naitakal/4939588089476517/)
 ## G
+* [Galaxy Kart](https://www.meta.com/appreferrals/Naitakal/5598654356882558/)
 * [GAZZLERS](https://www.meta.com/appreferrals/Naitakal/4912697945406928/)
 * [Grimlord](https://www.meta.com/appreferrals/Naitakal/6784503354964529/)
 ## I
