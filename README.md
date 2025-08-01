@@ -60,6 +60,7 @@ Claiming this will give us both 30€ store credit when you set up your new Meta
 * [Lone Echo (Rift)](https://www.meta.com/appreferrals/Naitakal/1368187813209608/)
 * [Lone Echo II (Rift)](https://www.meta.com/appreferrals/Naitakal/1711938725528735/)
 ## M
+* [Maestro](https://www.meta.com/appreferrals/Naitakal/6963344583787383/)
 * [MASTERS OF LIGHT](https://www.meta.com/appreferrals/Naitakal/6784615031600264/)
 * [Max Mustard](https://www.meta.com/appreferrals/Naitakal/5269080709783454/)
 * [Mixture](https://www.meta.com/appreferrals/Naitakal/4691626700899382/)
