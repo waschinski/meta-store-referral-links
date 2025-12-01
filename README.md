@@ -25,6 +25,7 @@ Claiming this will give us both 30€ store credit when you set up your new Meta
 * [AVICII Invector: Encore Edition](https://www.meta.com/appreferrals/Naitakal/4048766301899067/)
 ## B
 * [Barbaria](https://www.meta.com/appreferrals/Naitakal/5296016923775393/)
+* [BlackGate](https://www.meta.com/appreferrals/Naitakal/7096111567178673/)
 * [BoomBox](https://www.meta.com/appreferrals/Naitakal/3983480868361577/)
 * [BRINK Traveler](https://www.meta.com/appreferrals/Naitakal/3635172946605196/)
 ## C
@@ -50,6 +51,7 @@ Claiming this will give us both 30€ store credit when you set up your new Meta
 ## G
 * [Galaxy Kart](https://www.meta.com/appreferrals/Naitakal/5598654356882558/)
 * [GAZZLERS](https://www.meta.com/appreferrals/Naitakal/4912697945406928/)
+* [Glassbreakers](https://www.meta.com/appreferrals/Naitakal/24116732017937739/)
 * [Grimlord](https://www.meta.com/appreferrals/Naitakal/6784503354964529/)
 ## I
 * [In Death: Unchained](https://www.meta.com/appreferrals/Naitakal/2334376869949242/)
@@ -89,6 +91,7 @@ Claiming this will give us both 30€ store credit when you set up your new Meta
 * [The Walking Dead: Saints & Sinners - Chapter 2: Retribution](https://www.meta.com/appreferrals/Naitakal/5190288877703616/)
 * [THRASHER](https://www.meta.com/appreferrals/Naitakal/7693714067376780/)
 * [Towers and Powers](https://www.meta.com/appreferrals/Naitakal/3535742746525560/)
+* [Townsmen VR](https://www.meta.com/appreferrals/Naitakal/5155208571260698/)
 ## U
 * [UNDERDOGS](https://www.meta.com/appreferrals/Naitakal/5302178529865980/)
 * [Underworld Overseer](https://www.meta.com/appreferrals/Naitakal/7249464208476495/)
@@ -98,6 +101,7 @@ Claiming this will give us both 30€ store credit when you set up your new Meta
 * [Vampire: The Masquerade - Justice](https://www.meta.com/appreferrals/Naitakal/6179032068838054/)
 * [Vestiges: Fallen Tribes](https://www.meta.com/appreferrals/Naitakal/7767930589976238/)
 * [Virtuoso](https://www.meta.com/appreferrals/Naitakal/4705981139481778/)
+* [Void Raiders](https://www.meta.com/appreferrals/Naitakal/27437205815922861/)
 * [VR Skater: SL](https://www.meta.com/appreferrals/Naitakal/7167852766594738/)
 ## W
 * [Walkabout Mini Golf](https://www.meta.com/appreferrals/Naitakal/2462678267173943/)
