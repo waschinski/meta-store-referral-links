@@ -23,6 +23,7 @@ Claiming this will give us both 30€ store credit when you set up your new Meta
 * [Arken Age](https://www.meta.com/appreferrals/Naitakal/29923535407244981/)
 * [Asgard‘s Wrath (Rift)](https://www.meta.com/appreferrals/Naitakal/1180401875303371/)
 * [Asgard‘s Wrath 2](https://www.meta.com/appreferrals/Naitakal/2603836099654226/)
+* [Augmented Empire](https://www.meta.com/appreferrals/Naitakal/7618080518206990/)
 * [AVICII Invector: Encore Edition](https://www.meta.com/appreferrals/Naitakal/4048766301899067/)
 ## B
 * [Barbaria](https://www.meta.com/appreferrals/Naitakal/5296016923775393/)
@@ -67,6 +68,7 @@ Claiming this will give us both 30€ store credit when you set up your new Meta
 * [MASTERS OF LIGHT](https://www.meta.com/appreferrals/Naitakal/6784615031600264/)
 * [Max Mustard](https://www.meta.com/appreferrals/Naitakal/5269080709783454/)
 * [Mixture](https://www.meta.com/appreferrals/Naitakal/4691626700899382/)
+* [Mythic Realms](https://www.meta.com/appreferrals/Naitakal/8364993590228690/)
 ## P
 * [Per Aspera VR](https://www.meta.com/appreferrals/Naitakal/7365196930219982/)
 * [Pistol Whip](https://www.meta.com/appreferrals/Naitakal/2104963472963790/)
