@@ -71,6 +71,7 @@ Claiming this will give us both 30€ store credit when you set up your new Meta
 * [Mixture](https://www.meta.com/appreferrals/Naitakal/4691626700899382/)
 * [Mythic Realms](https://www.meta.com/appreferrals/Naitakal/8364993590228690/)
 ## P
+* [Paradiddle](https://www.meta.com/appreferrals/Naitakal/5719805344724551/)
 * [Per Aspera VR](https://www.meta.com/appreferrals/Naitakal/7365196930219982/)
 * [Pistol Whip](https://www.meta.com/appreferrals/Naitakal/2104963472963790/)
 ## Q
